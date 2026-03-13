@@ -23,7 +23,7 @@
 
 ## ◈ About Me
 
-   ✦  **Name** — Ummi Nishat Afza J
+   ✦  **Name** — Ummi Nishath Afza J
    ✦  **Degree** — BCA, 6th Semester (Final Year)
    ✦  **College** — Nandi Institute of Management & Science
    ✦  **University** — VSKUB, Bellary, Karnataka
